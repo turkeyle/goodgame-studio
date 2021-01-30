@@ -1,0 +1,2 @@
+# goodgame-studio
+i am just one guy that is geting mad in the game industry because i dont wont to see  buge games and the bullshit microtransactions  in the industry that we love and the only thing i wont to do is to make good games and not make be the same like EA and activision and different game companies that do the same bullshit the no one like in gameing and i hope that i can have my own gameing companie in indie or triple-A game companie and make a change
